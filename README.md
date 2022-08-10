@@ -1,4 +1,4 @@
-- 👋 H, Soy @GatitocuteGD
+- 👋 H, Soy @Just-Kato
 - 👀 Estoy interesado en programar
 - 🌱 Estoy aprendiendo a programar un juego
 - 📫 Just Kato#3065 - mi discord
